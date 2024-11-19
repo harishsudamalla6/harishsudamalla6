@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Freelancing
 - 🌱 I’m currently learning ... Frontend Development
 - 💞️ I’m looking to collaborate on ... 
-- 📫 How to reach me ... harishsudamalla@gmail.com
+- 📫 How to reach me ... harishsudamalla2@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... Nothing Much
 
